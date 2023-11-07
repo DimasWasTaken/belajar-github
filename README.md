@@ -1,4 +1,3 @@
 # belajar-github
-1.BELAJAR MAIN MOBILE LEGEND
-Dimas Rahmanda Alfarizi 
-hayaaaa
+# bejalar liat masa depan
+# belajar palakau
